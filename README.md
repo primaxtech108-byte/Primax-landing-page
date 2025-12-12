@@ -1,1 +1,0 @@
-# Primax-landing-page
